@@ -14,4 +14,4 @@ people in charge of the decisions that matter, and how to meet the EU AI Act wit
   spending against eight rules and produces the monthly report; an optional AI step drafts the leadership
   briefing and rejects any draft with a number that is not in the data.
 
-English (C2) · Swahili (native) · German (A2, learning) · [LinkedIn](https://www.linkedin.com/in/elly-shane-929906147)
+English (C2) · Swahili (native) · German (B1, learning) · [LinkedIn](https://www.linkedin.com/in/elly-shane-929906147)
